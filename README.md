@@ -1,1 +1,0 @@
-Please note that this project is made just for personal use, DO NOT use the code for commercial purposes as it contains copy right musics
